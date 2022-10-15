@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Thanks so much for visiting my blog.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Please continue reading my posts or check out my blog archive for older posts.
